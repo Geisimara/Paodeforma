@@ -12,5 +12,5 @@ Meu nome é Geisimara Alves
 
 Geisimaraalves00@gmail.com 
 
-![descrição do GIF](https://tenor.com/bJlHN.gif)
+![](https://tenor.com/bJlHN.gif)
 
