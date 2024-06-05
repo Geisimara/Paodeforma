@@ -10,4 +10,6 @@ Meu nome é Geisimara Alves
 
 # Você pode entrar em contato comigo 
 
+Geisimaraalves00@gmail.com 
+
 ![](https://tenor.com/bJlHN.gif)
