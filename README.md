@@ -8,7 +8,7 @@ Meu nome é Geisimara Alves
 
 • Utilizo esse espaço para minha organização e compartilhamento dos meus projetos 
 
-# Você pode entrar em contato comigo 
+# Você pode entrar em contato comigo 📫
 
 Geisimaraalves00@gmail.com 
 
